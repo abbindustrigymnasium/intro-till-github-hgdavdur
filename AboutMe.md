@@ -1,1 +1,1 @@
-Varför behöver vi göra det här 5 miljoner gången? 😭
+Hello my name is Davit, and I am almost 16 years old.
