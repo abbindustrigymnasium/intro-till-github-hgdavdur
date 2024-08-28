@@ -11,3 +11,15 @@
 ## **Why?**
 ### Why did I enroll at [*Hitachi Highschool*](https://vasteras.hitachigymnasiet.se/) specifically? Well to tell you the truth my choice of Highschool was greatly impacted by my older brother who graduated said Highschool 3 years ago.
 ![image](https://github.com/user-attachments/assets/529bb1e4-9cd1-4e70-9e59-952a82631686)
+
+## **What languages do I speak?**
+### I am fluent in 4 languages, however I am knowledgable in 5. The languages I am knowledgable in are:
+- Armenian
+- English
+- Swedish
+- Russian
+- *French (Not fluent)* 
+
+## Congrats on learning who I am!
+
+![ca6c744333366d89b3824449cb844c2e](https://github.com/user-attachments/assets/06cdce02-5de2-41ee-9d94-557ea27e2129)
